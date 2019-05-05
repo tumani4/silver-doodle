@@ -1,2 +1,0 @@
-# silver-doodle
-Russian
